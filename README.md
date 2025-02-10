@@ -1,1 +1,1 @@
-Expocion de funciones 10/02/25
+Exposicionde funciones 10/02/25
